@@ -2,6 +2,6 @@
 - eu amo jogos de video game.🎮
 - amo futebol 😸
 - amo wwe 
-- e amo desenvolver jogos.🎮
+- amo desenvolver jogos.🎮
   
  ![](https://media1.tenor.com/m/KX9rrktDtokAAAAd/roman-reigns-romanreigns.gif)
